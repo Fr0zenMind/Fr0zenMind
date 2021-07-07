@@ -1,0 +1,5 @@
+- 👋 Hi, I’m George Victor 
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning Unity
+- 💞️ I’m looking to collaborate on programming, IT, Telecom
+- 📫 How to reach me: vickygeorge293@gmail.com --- 0766465914
